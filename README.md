@@ -9,5 +9,3 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on neuroscience-related projects
 - 💬 Ask me about genetic engeneering and neurodevelopmental disorders
 - 📫 How to reach me: jmpessa@gmail.com
-
--->
